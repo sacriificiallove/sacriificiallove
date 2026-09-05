@@ -9,6 +9,6 @@ $${\color{red}That's \space \color{red} no \space way \space to \space \color{re
 
   <p align="center"> ✦ We do have occasional severe touch discomfort (OSVTD), as well as occasional cover and crowd discomfort (Crd/CvD). Because of this, we ask that you please give us a little bit of personal space and avoid sitting right on top of us or near without asking!. Strict DNI with anyone who disrespects TD/TT boundaries, etc. 
 
-<p align="center"> yes this is a wip hahahaha (had to add this gif I CAN'T BREATHE) 
+<p align="center"> yes this is a wip hahahaha 
 
-. . .![](https://64.media.tumblr.com/60f1e9c7b357d4ee7b7d1f6efde8b029/41fcc480b51006cf-68/s400x600/722f9840b400c9208dad88bc12b6c9f057865372.gifv) 
+
