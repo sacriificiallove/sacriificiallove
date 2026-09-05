@@ -1,7 +1,7 @@
 <p align="center">   
 $${\color{red}That's \space \color{red} no \space way \space to \space \color{red}travel , \space little \space buddy! }$$ 
 
-![](https://64.media.tumblr.com/835ebd01a7b7de5871915893f3f1dac8/e3228ab7acc24da4-ad/s400x600/647dfdd92e4121beb388304fd161ba2a19af5f8a.gifv) 
+![](https://64.media.tumblr.com/d086040e6d351b0fb86f33ceecde6771/75e40ce3986701dc-1e/s500x750/b0cd8a82acd25112e1bdb66d1eff68eb0c122fb8.gifv) 
 <p align="center">⠀♡⃕⠀CDID system of 130+ ❤  Male terms bodily
 
 ![](https://64.media.tumblr.com/c30f87aaaaa7e7d055c2f0654e7a0165/fc0b671c9fc45565-5e/s1280x1920/e606c8414646f704a21092e0c52a8085e6d6bf80.gifv) 
