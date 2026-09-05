@@ -8,3 +8,5 @@ $${\color{red}That's \space \color{red} no \space way \space to \space \color{re
 <p align="center"> ✦ We don't interact that much in Ponytown unless you're a friend of ours, or a friend of a friend. But! We do sometimes try to step out of our bubble to interact, and usually, it goes really well. So please feel free to come up and say hi! (Unless our name says otherwise, like DNI, or if we seem AFK.) We might be a bit shy and quiet at first, though, so please be cautious and patient. We also can be a bit quiet or NV/SV sometimes, it will be in name if is. 
 
   <p align="center"> ✦ We do have occasional severe touch discomfort (OSVTD), as well as occasional cover and crowd discomfort (Crd/CvD). Because of this, we ask that you please give us a little bit of personal space and avoid sitting right on top of us or near without asking!. Strict DNI with anyone who disrespects TD/TT boundaries, etc. 
+
+  ![](https://64.media.tumblr.com/eb20b801d3e04f834cf4d8d5e280c972/a73ff1ddd481de4f-f5/s400x600/53e2517de9744b76b44ee040ba530313faab5066.gifv) 
